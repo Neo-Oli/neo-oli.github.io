@@ -1,2 +1,2 @@
 # neo-oli.github.io
-Look for my website at [oliverse.ch](http://oliverse.ch)
+Look for my website at [glow.li](https://glow.li)
